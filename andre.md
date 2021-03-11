@@ -1,6 +1,6 @@
 ### Andrea
 
-_Love Between Mannequins_
+_Mannequins in Love (2021)_
 
 This is a story of true love!
 
